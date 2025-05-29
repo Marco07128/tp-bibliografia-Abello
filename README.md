@@ -1,2 +1,1 @@
-# tp-bibliografia-Abello
-Nombre: Marco Curso: 5°1° Tema: Mis gustos, disgutos y anecdotas de mi vida.
+Mi trabajo contiene información mía sobre mis gustos, disgustos, cualidades, comidas favoritas y sobre anécdotas de mi vida, la cual, en su mayoría, cuenta cómo estuve cerca de conocer a San Pedro. Espero haber hecho bien mi trabajo, profe :D
